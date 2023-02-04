@@ -1,2 +1,2 @@
-# hahafunni
-☻️☻️☻️
+# funni
+:)
